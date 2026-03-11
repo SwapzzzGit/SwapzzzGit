@@ -16,7 +16,7 @@
 
 - ⚡ Fun fact **I am Funny**
 
-- 📄 Know about my experiences [Resume ↗]([https://drive.google.com/file/d/1QwnxuywUHPzJkBhrastVY7SMB_EvcXXv/view?usp=sharing](https://drive.google.com/file/d/1gYQAU4fWKZjn-ItsMGK2fCufTVkYP9CW/view?usp=sharing))
+- 📄 Know about my experiences [Resume ↗](https://drive.google.com/file/d/1gYQAU4fWKZjn-ItsMGK2fCufTVkYP9CW/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
